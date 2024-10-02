@@ -1,3 +1,3 @@
 # kraftwerk
 
-dataset foundation for all
+data ai foundation + creation for all collaborative with quality & sustainable development & future in mind
